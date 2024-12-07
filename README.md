@@ -1,2 +1,2 @@
 # app-dev
-My favorite game is CODM
+ang paborito kong sub ay ang tinuturo ng teacher
