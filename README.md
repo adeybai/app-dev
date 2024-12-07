@@ -1,2 +1,2 @@
 # app-dev
-ang paborito kong sub ay ang tinuturo ng teacher
+https://www.google.com/url?sa=i&url=https%3A%2F%2Fwww.facebook.com%2Fmedia%2Fset%2F%3Fset%3Da.1599368226767449.1073743486.476348382402778%26type%3D3&psig=AOvVaw0LfSbBamv0r9QU18dhoGXP&ust=1733639960492000&source=images&cd=vfe&opi=89978449&ved=0CBQQjRxqFwoTCNjKl6KGlYoDFQAAAAAdAAAAABAE
